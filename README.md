@@ -15,5 +15,5 @@
 
 📫 How to reach me: [Gmail](ulurrosyad92033@gmail.com)
 🔗 Connect with me on [LinkedIn](linkedin.com/in/ulurrosyadr/).
-🛟 Follow my instagram on (https://www.instagram.com/urrosyadd/) 
+🛟 Follow my instagram on [Instagram](https://www.instagram.com/urrosyadd/) 
 
